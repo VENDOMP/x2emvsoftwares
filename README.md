@@ -3,7 +3,7 @@
 
 
 ### The folder with JCOPENGLISH / JCOPMGR, MSRX, TMACv6.0.7 and CARDPEEK is for free
-## The folder with all Tools it with a password
+## The folder with all Tools is with a password
 
 Hit me up on Telegram for the Pin or more proof t.me/VENDOMP
 
