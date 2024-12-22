@@ -19,9 +19,11 @@ This Version of X2 and all other tools are origional you can see that the X2 EMV
 ## !!!! ATRTOOL2.0 has some problems with Anti Virus so turn it off or use ATRGOD. I personally run my Softwares on an offline PC. Because of that its not on the pictures. 
 ## Text me on TELEGRAM if you wanna see it
 
-![grafik](https://github.com/user-attachments/assets/f41cf92f-63a7-4f66-a93d-b4791f981e58)
+
 # Here you can see there is no MASTERKEY file so its not a cracked Version
 If you want an crackt viersion like MR EMV i also have this but i would not recomand this bc its just a cracked,  copyed version or a virus so dont buy it
+
+![grafik](https://github.com/user-attachments/assets/f41cf92f-63a7-4f66-a93d-b4791f981e58)
 
 ![grafik](https://github.com/user-attachments/assets/7e259d36-2c94-4b57-8601-937ca8d8ed5c)
 ![grafik](https://github.com/user-attachments/assets/1f62014a-c2bd-41b9-a220-2a728c9abb53)
