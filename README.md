@@ -5,7 +5,7 @@
 
 ### The folder with JCOPENGLISH / JCOPMGR, MSRX, TMACv6.0.7 and CARDPEEK is for free
 
-## Hit me up on Telegram for the folder with all Softwares or more proof t.me/VENDOMP
+## Hit me up on Telegram for the folder with all Softwares or more proof https://t.me/VENDOMP/
 
 ## Join my dicord for softwares tutorials and more https://discord.gg/5KD2XxVZ
 
