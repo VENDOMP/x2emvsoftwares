@@ -7,8 +7,6 @@
 
 ## Hit me up on Telegram for the folder with all Softwares or more proof https://t.me/VENDOMP/
 
-## Join my dicord for softwares tutorials and more https://discord.gg/5KD2XxVZ
-
 
 This Version of X2 and all other tools are origional you can see that the X2 EMV Tool has no MASTERKEY file so its not cracked.
 
